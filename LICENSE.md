@@ -1,4 +1,4 @@
-
+Experience brainrot evolution like never before with brainrot evolution Script elite, the #1 Script. Includes auto-upgrade and auto-collect for
 
 
 
